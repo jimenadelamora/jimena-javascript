@@ -2,4 +2,4 @@
 
 By Jimena De la Mora
 
-The project is due ???
+The project is due March 5th.
